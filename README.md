@@ -14,3 +14,10 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+- 👨‍💻 Graduate Mechanical Cum Data Engineer | Future Technologist! 
+
+- 🤩 Taking a journey to merge Big Data with traditional Mechanical Engineering one step at a time!
+
+
+ 
